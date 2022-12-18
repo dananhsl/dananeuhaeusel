@@ -1,6 +1,6 @@
 # Hey, my name is Dana. 🖖
 
-## I am currently a web dev student at neue fische. 🐠
+## I am currently a Junior Cloud Developer at adconova GmbH.
 
 #### Maybe you're asking yourself what my hidden talent is? Well many people know that I love drawing and creating art but I also play multiple instruments. If you want to know which ones just ask away and we can start a conversation! 
 
