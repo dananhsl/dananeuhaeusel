@@ -1,6 +1,6 @@
 # Hey, my name is Dana. 🖖
 
-## I am an aspiring Web Developer.
+## I am an Software Developer and Artist.
 
 **Things that I love:**
 - Programming 👩‍💻
